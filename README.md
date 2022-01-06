@@ -1,1 +1,1 @@
-# Trabalho-de-MEAD-Estat-stcia
+# Trabalho-de-MEAD-Estatistcia
